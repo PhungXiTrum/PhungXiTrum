@@ -1,4 +1,4 @@
 -  :wave: Hi, I’m Nguyen Nhat Quang ( ᴘʜuɴɢxiᴛʀᴜᴍ )
 -  :house: I’m living in Ho Chi Minh city
 -  :school: I’m studying at Van Lang University
--  :heart: I have a crush on :turtle: :heart:
+-  :heart: :turtle: :heart:
