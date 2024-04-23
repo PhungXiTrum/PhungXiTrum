@@ -1,4 +1,4 @@
--  :wave: Hi, I’m Nguyen Nhat Quang ( ᴘʜuɴɢxiᴛʀᴜᴍ )
+-  :wave: Hi, I’m Nguyen Nhat Quang
 -  :house: I’m living in Ho Chi Minh city
--  :school: I’m studying at Van Lang University
+-  :school: I’m studying at Van Lang University (software engineering)
 -  :turtle: 
